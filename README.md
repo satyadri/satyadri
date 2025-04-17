@@ -101,7 +101,7 @@ From startups to established enterprises – we cater to a wide range of sectors
 
 We believe in creativity, collaboration, and continuous learning.  
 *Here’s a sneak peek into our team and workspace...*  
-![Team Photo Placeholder](https://via.placeholder.com/600x300.png?text=Team+Satyadri+Innovations)
+![Team Photo Placeholder](https://pplware.sapo.pt/wp-content/uploads/2018/12/pplware_mark_zuk03.jpeg?text=Team+Satyadri+Innovations)
 
 ---
 
