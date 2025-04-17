@@ -1,6 +1,6 @@
 # 🚀 Satyadri Innovations LLP
 
-![Satyadri Innovations LLP]([https://via.placeholder.com/800x200.png?text=Satyadri+Innovations+LLP+Logo](https://thumbs.dreamstime.com/b/hand-holding-light-bulb-business-digital-marketing-innovation-technology-icons-network-hand-holding-light-bulb-business-138534565.jpg))  
+![Satyadri Innovations LLP](https://thumbs.dreamstime.com/b/hand-holding-light-bulb-business-digital-marketing-innovation-technology-icons-network-hand-holding-light-bulb-business-138534565.jpg?text=Satyadri+Innovations+LLP+Logo)  
 *Innovating for the Future – One Line of Code at a Time*
 
 ---
